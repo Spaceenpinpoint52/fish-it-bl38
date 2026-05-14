@@ -1,4 +1,4 @@
-#  
+#  fish it secure Scripts is the best fish it Script, featuring unlimited stamina and no clip. Safe and powerful for all your needs.
 
 
 
